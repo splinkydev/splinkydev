@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @splinkydev
+- 👀 I’m interested in musics and gaming and readings
+- 🌱 I’m currently learning HTML, soon to learn CSS then JS
+- 💞️ I’m looking to collaborate on anything
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: my balls ahhhhhhh
